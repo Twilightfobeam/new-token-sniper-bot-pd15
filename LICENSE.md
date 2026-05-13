@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with updated new token sniper bot | multi-wallet-support + low-cap-gem-detection. Featuring multi-wallet-support and low-cap-gem-detection,
 
 
 
